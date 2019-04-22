@@ -1,0 +1,1 @@
+# Download-Adobe-Premiere-Pro-CC-2019-Full-Cr-ck
